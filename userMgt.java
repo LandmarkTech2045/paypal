@@ -1,3 +1,7 @@
 land
 simon
-dominion
+dominio
+JBoamah
+Papa J
+Paa Solo
+Seth
