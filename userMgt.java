@@ -5,3 +5,5 @@ JBoamah
 Papa J
 Paa Solo
 Seth
+Franca
+Mensah
